@@ -1,5 +1,5 @@
 # 不透明Records
-不透明Recordsは東京のインディペンデント・レーベル
+不透明Recordsは10代のインディペンデント・レーベル
 - [0iroのSoundClound](https://soundcloud.com/0iro)
 - [Twitter](https://twitter.com/futoumeirecords)
 
